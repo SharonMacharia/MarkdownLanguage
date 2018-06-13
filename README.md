@@ -29,7 +29,37 @@ Unordered
 Ordered 
 
 1.Let them judge you.
-2.Let them misunderstand you.
-3.Let them gossip about you.
 
+2.Let them misunderstand you.
+
+3.Let them gossip about you.
+ 
 ![Jamaican heart](Jamaican heart reggae.png)
+  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
