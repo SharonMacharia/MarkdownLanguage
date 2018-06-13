@@ -33,7 +33,7 @@ Ordered
 3.Let them gossip about you.
 
 Images
- 
+
 ![Jamaican heart](Jamaican heart reggae.png)
   
 
