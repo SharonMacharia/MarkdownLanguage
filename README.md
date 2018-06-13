@@ -32,7 +32,8 @@ Ordered
 2.Let them misunderstand you.
 3.Let them gossip about you.
 
-Images 
+Images
+ 
 ![Jamaican heart](Jamaican heart reggae.png)
   
 
