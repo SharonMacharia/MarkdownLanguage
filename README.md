@@ -34,9 +34,9 @@ Ordered
 
 3.Let them gossip about you.
  
-![Jamaican heart](Jamaican heart reggae.png)
+![Jamaican heart](Jamaicanheart.png)
 
-![Lakers.png)
+![Lakers](Lakers.png)
   
 
 
